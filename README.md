@@ -10,5 +10,5 @@
 
 
 📫 Let’s connect!
-   [LinkedIn](www.linkedin.com/in/taniya-karmakar-BTech)  
+   [LinkedIn](www.linkedin.com/in/taniya-karmakar-/)  
    Email: taniyakarmakar405@gmail.com
